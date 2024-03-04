@@ -1,2 +1,0 @@
-Facskó Balázs
-Fekete Viktor
